@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ayush3050
+- 👀 I’m interested in ...anime and basketball
+- 🌱 I’m currently learning ...python
+- 💞️ I’m looking to collaborate on ... some new projects
+- 📫 How to reach me ...badial_ayush (ig)
